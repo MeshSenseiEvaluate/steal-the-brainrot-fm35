@@ -1,4 +1,4 @@
-# 
+# best Scripts for steal the brainrot base is the best steal the brainrot base Script, featuring god mode and aimbot. Safe and powerful for all your
 
 
 
